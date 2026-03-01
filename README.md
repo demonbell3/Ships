@@ -8,7 +8,7 @@ Bolded --> My main ships I like and talk abt a lot!
 
 જ⁀➴ ♡ Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, calypso x circe, zeus x hera, **Eurydice x orpheus**, hera x iris.
 
-જ⁀➴ ♡ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x persephone x nyx, melione x scylla, melione x arachne.
+જ⁀➴ ♡ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x persephone x nyx, Melinoë x scylla, Melinoë x arachne.
 
 
 ![tenor](https://github.com/user-attachments/assets/94e011e7-1552-4e51-afa6-16842fd422d5)
