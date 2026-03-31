@@ -14,8 +14,7 @@ Bolded --> My main ships I like and talk abt a lot!
 ![tenor](https://github.com/user-attachments/assets/94e011e7-1552-4e51-afa6-16842fd422d5)
 
 
-౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Valdust, Staticdust, CalyOdy, Circody, Appledust, Sharpwolf, Radiojoy,
-Charlastor, Vox x ANY of the angels, Blitz x Verosika, Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
+౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Valdust, Staticdust, CalyOdy, Circody, Appledust, Sharpwolf, Radiojoy, Vox x ANY of the angels, Blitz x Verosika, Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
 
 ౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings, Radiostatic. + More will be added !
 
