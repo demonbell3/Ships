@@ -2,7 +2,7 @@
 Bolded --> My main ships I like and talk abt a lot!
 
 
-જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence (also somewhat IWC?), **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle, Mediabelle, Radiobelle, Mothbelle, Mediamothbelle, Fallenwings, Charlies angels ( Emily x Vaggi x Charlie), Charlute, Charlies exorcists ( Lute x Vaggi x Charlie ). Fallendoll, Fashionspear, Emilette, Rosemoth (Rosie x Val).
+જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence (also somewhat IWC?), **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle, Mediabelle, Radiobelle, Mothbelle (CRACKSHIP), Mediamothbelle (CRACKSHIP), Fallenwings, Charlies angels ( Emily x Vaggi x Charlie), Charlute, Charlies exorcists ( Lute x Vaggi x Charlie ). Fallendoll, Fashionspear, Emilette, Rosemoth (Rosie x Val).
 
 જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ), Staticbee, BarbVel, Staticpop, Fizzmodeus.
 
