@@ -18,4 +18,4 @@ Bolded --> My main ships I like and talk abt a lot!
 
 ౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings, Radiostatic. + More will be added !
 
-౨ৎ DNIUF; Stolitz, Radioapple, Guitarspear (Also IWC). + More will be added !
+౨ৎ DNIUF; Stolitz, Radioapple, Guitarspear, Murdermedia, Radiostatic. + More will be added !
