@@ -2,13 +2,13 @@
 Bolded --> My main ships I like and talk abt a lot!
 
 
-જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence (also somewhat IWC?), **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle, Mediabelle, Radiobelle, Mothbelle (CRACKSHIP), Mediamothbelle (CRACKSHIP), Fallenwings, Charlies angels ( Emily x Vaggi x Charlie), Charlute, Charlies exorcists ( Lute x Vaggi x Charlie ). Fallendoll, Fashionspear, Emilette, Rosemoth (Rosie x Val).
+જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence (also somewhat IWC?), **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, **Lucililith**, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle, Mediabelle, Radiobelle, Mothbelle (CRACKSHIP), Mediamothbelle (CRACKSHIP), **Fallenwings**, Charlies angels ( Emily x Vaggi x Charlie), Charlute, Charlies exorcists ( Lute x Vaggi x Charlie ). Fallendoll, Fashionspear, Emilette, Rosemoth (Rosie x Val).
 
-જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ), Staticbee, BarbVel, Staticpop, Fizzmodeus.
+જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, **Seductivesmoke** ( Verosika x Val ), Staticbee, BarbVel, Staticpop, Fizzmodeus.
 
 જ⁀➴ ♡ Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, calypso x circe, zeus x hera, **Eurydice x orpheus**, hera x iris.
 
-જ⁀➴ ♡ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x persephone x nyx, Melinoë x scylla, Melinoë x arachne.
+જ⁀➴ ♡ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x persephone x nyx, **Melinoë x scylla**, Melinoë x arachne.
 
 
 ![tenor](https://github.com/user-attachments/assets/94e011e7-1552-4e51-afa6-16842fd422d5)
