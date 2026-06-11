@@ -6,7 +6,7 @@ Bolded --> My main ships I like and talk abt a lot!
 
 જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, **Seductivesmoke** ( Verosika x Val ), Staticbee, BarbVel, Staticpop, Fizzmodeus.
 
-જ⁀➴ ♡ Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, zeus x hera, **Eurydice x orpheus**, hera x iris.
+જ⁀➴ ♡ Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, zeus x hera, **Eurydice x orpheus**, hera x iris, telemachus x nausicaa.
 
 જ⁀➴ ♡ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x persephone x nyx, **Melinoë x scylla**, Melinoë x arachne.
 
